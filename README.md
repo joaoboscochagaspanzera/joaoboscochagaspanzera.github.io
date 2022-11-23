@@ -1,1 +1,0 @@
-# joaoboscochagaspanzera.github.io
